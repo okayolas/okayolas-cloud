@@ -1,0 +1,4 @@
+# Links for countries people going through genocide
+
+1. https://www.savethechildren.org/us/where-we-work/west-bank-gaza?cid=Paid_Search:Google_Paid:Emer_Gaza:Nonbrand:043025&s_kwcid=AL!9048!3!753836769555!b!!g!!donate%20to%20gaza&gclsrc=aw.ds&gad_source=1&gad_campaignid=20669675018&gclid=Cj0KCQjw5onGBhDeARIsAFK6QJZJW4NYb1kcZe7Z6Mibt9ofY_Tlwn4g8m0WkWQZ0BTlTruoMGh6PpYaApI2EALw_wcB
+2. https://irusa.org/rebuild-gaza/?utm_source=google&utm_medium=cpc&utm_campaign=&utm_content=178584352319&utm_term=donate%20to%20gaza&c_src=BOF_Acquisition_Search_Generic_Always_On_2025Q2&c_src2=paid-google&gad_source=1&gad_campaignid=22543329259&gclid=Cj0KCQjw5onGBhDeARIsAFK6QJZE9Aefjhb5ZZ4mHgt1KBTaTRSC7OmqaCCWttsJs1Fg1kxAyahVoAAaAuDaEALw_wcB
