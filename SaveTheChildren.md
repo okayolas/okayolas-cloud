@@ -41,3 +41,9 @@ Access to clean water is a lifeline for refugee camps, war zones, and post-genoc
 - **Share verified resources** to fight misinformation about ongoing atrocities.  
 - **Advocate** for governments to recognize genocides and pressure for ceasefires & humanitarian access.  
 - **Volunteer / Fundraise** through global or local networks to provide direct aid.
+
+
+
+## More Links
+
+1.  https://ihyamiras.org/en/projecat/palestine/218
