@@ -17,9 +17,6 @@
 
 ---
 
-## Suggested Markdown Section Ready for GitHub
-
-```md
 ## Support Gun Law Reform & Ban Assault Rifles Links
 
 1. **Everytown for Gun Safety**  
