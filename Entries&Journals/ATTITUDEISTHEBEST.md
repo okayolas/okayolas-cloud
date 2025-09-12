@@ -1,133 +1,31 @@
 # The Power of Gaslighting Yourself — Why Changing Your Attitude Matters More Than Changing Your Effort
 
-## The Setup: Two Ways to See the Same Day
-**Version 1 (Effort-Focused):**  
-On Tuesdays, I **have to** wake up at 7 a.m. to make it to my 9 a.m. class.  
-I **have to** go to bed early the night before.  
-I **have to** make tea, take allergy medicine, and drag myself across campus for 20 minutes hoping I’m not late.  
+On Tuesdays, I have to wake up at 7 a.m. to make it to my 9 a.m. class on time. I have to go to bed early the night before to get a full night’s rest. I have to make myself tea and take allergy medicine because I wake up feeling gross from dust and pollen. Then I have to walk 20 minutes across campus and hope I’m not late.
 
-**Version 2 (Attitude-Focused):**  
-On Tuesdays, I **get to** wake up at 7 a.m. while it’s quiet and peaceful.  
-I **get to** enjoy a slow morning, make a warm cup of tea, and take medicine that helps me feel good all day.  
-I **get to** walk outside, breathe fresh air, maybe even get to class early — headphones on, *Juna* by Clairo playing, enjoying the morning.  
+Now let’s take the exact same situation — but look at it through the lens of attitude instead of effort. On Tuesdays, I get to wake up at 7 a.m. Even though it’s early, it’s quiet and peaceful. It gives me space to think and take my morning at my own pace. I get to go to a class I actually enjoy at 9. I get to treat myself to a warm cup of tea and take allergy medicine that helps me feel better throughout the day. When I’m done getting ready, I get to walk outside, breathe in some fresh air, and maybe even get to class with time to spare. I might put my headphones on and listen to *Juna* by Clairo on the way — one of those little morning wins that makes everything feel softer.
 
-This is the exact same situation — but seen through a different lens.  
+I’m not a morning person by any means, but when we look at our obligations as privileges, not just tasks, life starts to feel a little lighter. We live in a world full of stress — that’s real — but at a certain point, pressure becomes a privilege. Getting an education, having a job, managing a home, showing up for people you care about — these can feel like burdens. And they are responsibilities, but they’re also opportunities. They’re things we are fortunate to have.
 
----
+Too often, when life gets overwhelming, we think the solution is to just “try harder.” We push ourselves, double down, beat ourselves up when we’re tired, and tell ourselves we’re slacking. But what if the problem isn’t our effort — it’s our mindset? What if the key to getting through hard times isn’t putting in more energy, but shifting the energy we already have?
 
-## Obligations or Privileges?
-I’m not a morning person by any means — but when we start to see our obligations as privileges, life feels lighter.  
-We live in a stressful world — that’s real — but at a certain point, **pressure is a privilege.**  
+I call it gaslighting yourself — in a good way. It’s reframing the situation, telling yourself that something annoying or stressful is actually a blessing in disguise. At first it might feel fake, but over time, your mindset adapts. The lies you tell yourself become true. You start believing the better story you’re telling yourself, and you perform better because of it.
 
-Getting an education.  
-Having a job.  
-Managing a home.  
-Showing up for people you care about.  
+Research backs this up. Carol Dweck’s work on growth mindset shows that people who view challenges as opportunities, not setbacks, are more likely to succeed. It’s not because they try harder — it’s because they view failure differently. They see it as feedback instead of a dead end. They treat effort as a tool, not a punishment. Instead of thinking “I have to do this,” they think, “I get to do this.” Instead of treating rest like a reward, they treat it like fuel.
 
-Yes, these are responsibilities. But they’re also opportunities we’re lucky to have.  
+Imagine two students studying for the same exam. They both put in three hours a day. One sees the class as a chore and doubts their ability. The other is curious, asks questions, and believes they can improve. Who do you think retains more? Who’s more focused? Who shows up with more energy? Same effort, different results — all because of attitude.
 
----
+Think about athletes. The ones who perform best under pressure aren’t always the ones who work the hardest in training — they’re the ones who can stay calm, focused, and optimistic when things go wrong. They reframe pressure as excitement instead of anxiety. That’s an attitude shift, not an effort upgrade.
 
-## The Problem: Trying Harder Isn’t Always the Answer
-When life gets overwhelming, we often default to:  
-- “Push harder.”  
-- “Double down.”  
-- “Beat yourself up until you get it done.”  
+I had a moment like that this semester. I was falling behind on work, juggling multiple projects, barely sleeping, and no matter how much I pushed through, I just felt stuck. Every assignment felt like a mountain. I kept telling myself, “You’re being lazy. Just work harder.” But the more pressure I put on myself, the worse I performed.
 
-But what if the problem isn’t effort — it’s **mindset**?  
+Then one day I stopped and asked, “What if I’m not being lazy? What if I’m just overwhelmed — and that’s okay?” I didn’t change how much work I was doing. I changed the voice in my head. I told myself I could do it — not because I had to, but because I wanted to. That small switch in mindset made all the difference. Suddenly I had momentum again. Not because I was grinding harder, but because I believed I could handle it.
 
----
+That’s what this is really about — taking the pressure we put on ourselves and reshaping it into power. You can put in all the effort in the world, but if your mindset isn’t aligned with your goals, you’re just burning yourself out. Effort is fuel. Attitude is the steering wheel. And you can’t get anywhere if you’re just driving in circles.
 
-## Gaslighting Yourself (in a Good Way)
-I call it *gaslighting yourself* — in a good way.  
+So how do we do this? We start small. Instead of saying, “I have to do this,” try saying, “I get to do this.” Instead of thinking, “I’m behind,” try, “I’m learning.” Instead of saying, “I’m not doing enough,” try, “I’m doing the best I can with what I have.” These aren’t just motivational quotes — they’re mental reprogramming. They’re ways to take control of how you experience life, even when life gets chaotic.
 
-- Reframing the situation  
-- Telling yourself the hard thing is actually a hidden blessing  
-- Choosing to believe the better story until it becomes true  
+Changing your attitude doesn’t mean you stop trying. It means you stop blaming yourself every time something gets hard. When you change your attitude, the effort often follows naturally. You feel more energized. You’re more creative. You don’t dread tasks — you engage with them. And slowly but surely, you start showing up as your best self. Not your most exhausted self. Not your most burnt-out self. Your most aligned self.
 
-It might sound fake at first — but over time, your brain catches up. Your performance actually improves because you’ve shifted the story you live by.  
+So the next time you feel stuck, or behind, or like you’re not doing enough — pause. Ask yourself: “What’s the story I’m telling myself about this situation? Can I tell a better one?” Because sometimes the most powerful thing you can do isn’t trying harder — it’s believing that what you’re already doing is enough, and reframing your mindset to match.
 
----
-
-## The Science
-Psychologist **Carol Dweck’s work on growth mindset** shows:  
-- People who believe challenges are opportunities perform better  
-- Not because they work harder — but because they view failure as feedback, not a dead end  
-- They use effort as a tool, not as punishment  
-
----
-
-## Same Effort, Different Results
-Two students study for the same exam for three hours a day:  
-- **Student A:** Sees class as a chore, doubts themselves, dreads the work  
-- **Student B:** Stays curious, asks questions, believes they can improve  
-
-Who learns more? Who stays focused? Who retains more?  
-**Same effort. Different outcome. All because of attitude.**
-
----
-
-## Athletes Get It
-The best athletes under pressure aren’t always the hardest workers — they’re the ones who:  
-- Stay calm and focused when things go wrong  
-- Reframe pressure as excitement, not anxiety  
-
-That’s an attitude shift, not an effort upgrade.  
-
----
-
-## A Personal Example
-This semester, I was falling behind — multiple projects, no sleep, every task felt like a mountain.  
-I kept telling myself: “You’re lazy. Just push harder.”  
-
-But the more I forced myself, the worse I performed.  
-
-Then I asked:  
-> “What if I’m not lazy? What if I’m just overwhelmed — and that’s okay?”
-
-I didn’t change my workload — I changed the voice in my head.  
-Suddenly, I had momentum again — not because I worked harder, but because I **believed** I could handle it.  
-
----
-
-## Effort vs. Attitude
-Effort is fuel.  
-Attitude is the steering wheel.  
-You can floor the gas pedal all day — but if your mindset is misaligned, you’ll just drive in circles.  
-
----
-
-## Practical Shifts You Can Make
-- Change **“I have to” → “I get to.”**  
-- Change **“I’m behind” → “I’m learning.”**  
-- Change **“I’m not doing enough” → “I’m doing my best with what I have.”**  
-
-These aren’t just motivational quotes — they’re mental reprogramming.  
-
----
-
-## The Takeaway
-Changing your attitude doesn’t mean giving up on effort — it means stopping the self-blame cycle.  
-
-When your mindset shifts:  
-- You feel energized instead of drained  
-- You become more creative  
-- You stop dreading tasks and start engaging with them  
-
-You start showing up as your **best self** — not your most exhausted self.  
-
----
-
-## Final Thought
-The next time you feel stuck, pause and ask:  
-> “What’s the story I’m telling myself about this situation? Can I tell a better one?”  
-
-Because sometimes the most powerful thing you can do isn’t to try harder —  
-it’s to **believe that what you’re already doing is enough**.  
-
-Pressure will always exist — but so will privilege and opportunity.  
-When you can say, *“I get to do this today,”* that’s when life starts to change.  
-
----
-
-**Thank you.**
+The pressure will always be there. But so will the privilege and opportunity. And when you can wake up, breathe in, and say, “I get to do this today,” that’s when your life starts to change.
