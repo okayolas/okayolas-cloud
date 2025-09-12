@@ -4,9 +4,10 @@ Whether we like it or not.
 Whether we want to or not.  
 Whether we agree, disagree, or can’t decide.  
 
-We make mistakes we shouldn’t.  
+We make mistakes we feel we shouldn’t or do not mean.  
 We feel each other’s pain.  
 We regret, we mourn, we lose — and we keep going.  
+What else is there to do but figure it out and keep going?
 
 **It is us.**  
 It will forever be us.  
