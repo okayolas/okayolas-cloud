@@ -47,3 +47,7 @@ Access to clean water is a lifeline for refugee camps, war zones, and post-genoc
 ## More Links
 
 1.  https://ihyamiras.org/en/projecat/palestine/218
+2. (Children in Ghana)
+- https://campaign.manyhopes.org/ghana/?utm_campaign=Rescue%20183%20Ghana%20-%20Child%20Slavery&utm_source=tiktok&utm_medium=social&utm_term=video&utm_content=manyhopes-profile
+3. (Jewelry with a Purpose)
+- https://thebutterflyeffect.com/?fbclid=PAZnRzaAMyv2NleHRuA2FlbQExAAGngakKv4wC7Wm5NuIJMtT62bv1AomTxEa0mSsK1AORi1D7_UNvjwMimZHDOik_aem_UM0nSOdokzqh40UV73FI-Q
