@@ -1,4 +1,4 @@
-# 🌊 okayolas-cloud  
+# 🌊 okayolas
 
 *ideas, plans, extensions of the mind*  
 
