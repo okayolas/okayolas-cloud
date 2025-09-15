@@ -13,6 +13,7 @@
 11. Holly Hood
 12. Aisha
 13. Justin Jen
+13. Dijon
 14. Justin Bieber
 15. Lil Tecca
 16. Eddie Benjamin
