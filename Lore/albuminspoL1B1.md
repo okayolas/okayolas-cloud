@@ -24,3 +24,11 @@
 21. Aries
 22. Spider Man
 23. Cobra Kai
+24. The Fam
+25. Jason Petrin
+26. Rachel Rome
+27. Daedelus (Wonder)
+28. Mike Parvizi
+29. The Michel/les
+30. Barbara
+31. John Paterno

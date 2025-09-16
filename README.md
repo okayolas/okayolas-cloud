@@ -23,4 +23,4 @@ and that we get to do it together.
 if you’re here, welcome.  
 **pull up a chair, stay awhile.**  
 
-- stay in touch with me by following me on insta or email me at olasbeats@gmail.com
+- stay in touch with me by following me on insta https://www.instagram.com/okayolas/ or email me at olasbeats@gmail.com
