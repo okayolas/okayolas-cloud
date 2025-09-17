@@ -11,4 +11,5 @@ Eventually, he sees it: he’s been taking the most important parts of his life 
 Last One Best One is about that final evolution before adulthood. It’s about realizing life isn’t fair to anyone, and still choosing love, compassion, and presence despite the noise. Even in the chaos, there’s room to grow. Room to feel. Room to begin again. Room to make this final frontier, the best one by any means necessary. Not to mention, this was Jaden's final project in school.
 
 This album is introspective, colorful, exciting, a slow burn, and empowering. It’s Jaden and Olas—aka Las—signing off from a pivotal chapter, and stepping boldly into what’s next.
-L1B1 Forever
+
+# L1B1 Forever
