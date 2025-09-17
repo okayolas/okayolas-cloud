@@ -1,6 +1,6 @@
 ## Thursdays
 
-Thursday is my favorite day of the week. It feels like the turning point—the pinnacle of everything wonderful and lovely in the world.  
+Thursday is not only my favorite day of the week but the **proven** best day of the week. It feels like the turning point—the pinnacle of everything wonderful and lovely in the world.  
 
 To me, Thursday has always been Friday Eve. And Friday Eve (Thursday) has always felt like the true end of a week.  
 
