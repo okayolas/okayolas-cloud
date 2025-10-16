@@ -1,0 +1,2 @@
+It’s about ending on a fucking high note. It’s about making the most of that last moment that last opportunity, that last shot, that last game, that last date, that last day.
+It’s about asking yourself: if this were your last anything, how would you want it to end?
