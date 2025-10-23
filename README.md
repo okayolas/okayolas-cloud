@@ -24,3 +24,5 @@ if you’re here, welcome.
 **pull up a chair, stay awhile.**  
 
 - stay in touch with me by following me on insta https://www.instagram.com/okayolas/ or email me at olasbeats@gmail.com
+
+- https://gist.github.com/rxaviers/7360908

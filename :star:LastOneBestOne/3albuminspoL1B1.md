@@ -15,16 +15,19 @@
 13. Justin Jen
 13. Dijon
 14. Justin Bieber
+14. Kam Frost
 15. Lil Tecca
 16. Eddie Benjamin
 17. Jane Remover
 18. Mkgee
 19. Ericdoa
+19. Raymond Ge
 20. Glaive
 21. Aries
 22. Spider Man
 23. Cobra Kai
 24. The Fam
+24. Holly Hood
 25. Jason Petrin
 26. Rachel Rome
 27. Daedelus (Wonder)
