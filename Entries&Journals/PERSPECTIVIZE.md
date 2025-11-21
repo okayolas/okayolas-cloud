@@ -1,0 +1,1 @@
+- But only YOU can do something with that perspective. Interpret it channel it and use it. You walk in alignment brian. And that is something no one can take away from you. So keep on creating. Keep on seeking. Keep on discovering and growing. Its our time now. See u at the top Brian, it wont be lonely this time..
